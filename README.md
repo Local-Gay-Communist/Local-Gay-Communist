@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Local-Gay-Communist
-- 👀 I’m interested in Game dev and OS dev
+- 👀 I’m interested in occasionally writing useless programs out of boredom
 - 🌱 I’m currently learning mandarin
 - 💞️ I’m looking to collaborate on nothing, please leave me alone
 - 📫 How to reach me Local-Gay-Communist@proton.me
